@@ -51,7 +51,7 @@ A little Collection of ART
 
   GV：未成熟卵子，左图，细胞核的结构尚未消失，在此阶段的卵胞浆中可以见到圆圆的核结构。
 
-  ![](C:\Users\NJDF\Desktop\p4YBAFIvxy2AFybrAACobZRCRSg703.jpg)
+  ![](https://github.com/NJCCJohnWason/ART-Noun-Map/blob/master/Pics/gvmimii.jpg)
 
   ​
   辅助生殖名词整理(单词)
